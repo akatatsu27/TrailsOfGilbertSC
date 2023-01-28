@@ -1,5 +1,5 @@
 # Trails Of Gilbert Second Chapter
-The Presequel to Trails Of Gilbert The 3rd!
+The Presequel to Trails Of Gilbert The 3rd!  
 Note: Due to budget constraints, we had to hire a suspicious bard. We apologize for any inconvenience.
 
 Q: How to install?  
